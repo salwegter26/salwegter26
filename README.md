@@ -1,1 +1,1 @@
-https://salwegter26.github.io
+salwegter26.github.io
